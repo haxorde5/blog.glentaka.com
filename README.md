@@ -1,0 +1,2 @@
+# blog.glentaka.com
+hahahaha
